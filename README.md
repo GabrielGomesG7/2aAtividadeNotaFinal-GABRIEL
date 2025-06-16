@@ -1,2 +1,2 @@
 2aAtividadeNotaFinal-GABRIEL
-Aluno: Gabriel Francisco O. Gomes dos Santos - Matrícula: 202202783901
+Aluno: Gabriel Francisco - Matrícula: 202202783901
